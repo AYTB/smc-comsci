@@ -20,4 +20,4 @@ Emad Saadat was here.
 
 "Hiyya" - Sin
 
-"One more time" - Aharon
+"Hey everyone" - Aharon
